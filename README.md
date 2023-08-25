@@ -11,7 +11,6 @@
 ![image](https://github.com/kirankampli/kreativebi2/assets/143105817/8edfde76-3163-4a38-97af-43bc8bae1a49)
 
 
-![image](https://github.com/kirankampli/kreativebi2/assets/143105817/3b62ce26-9706-46b8-8c99-460a6b3231ed)
 
 
 
